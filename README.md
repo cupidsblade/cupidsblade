@@ -1,15 +1,26 @@
-hihi!! this was mostly made for ponytown. please read below
-byi , i easily forget things , talk in caps (sometimes) , and use tonetags.
+<div align="center">
+<img src="https://files.catbox.moe/hyamrj.png" alt="chainsaw bunny" width="500" height="auto">
+  
+<div/>
+  <div align="left">
+    
+  ![](https://files.catbox.moe/wpyls5.png)
 
-int! , gi , hsr , tmc , sf , dc , marvel , vocaloid , tbhk , fnaf , fnf , welcome home , +more
+<div/>
+  <div align="center">
+    
+![](https://files.catbox.moe/hkpx3q.png)
+kubz⠀𓈒⠀jay⠀𓈒⠀doa
 
-dni! , pedo, racist, sexist, homophobe, transphobe, etc. 
+ [click me](https://open.spotify.com/artist/4hR6Bm9YYtktXzjmKhb1Cn?si=LGGKYX7FSvuYRsp6fhf3mg)
+ 
+they⠀𓈒⠀he⠀⠀𓏏𓏏⠀[guestbook](https://brakence.atabook.org/)⠀⠀[rentry](https://rentry.co/vol_333)⠀⠀11/16
+![](https://files.catbox.moe/xcy06t.png)
 
-please whisper or tell me if you want to take **INSPO** from my ponies. please do not post my ponies on pinterest, or youtube. please do not copy or steal my ponies.
+<div/>
 
-thats about it, tysm for reading!
+<div align="right">
+  
+![](https://files.catbox.moe/rd0wr1.png)
 
-<!---
-cupidsblade/cupidsblade is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+<div/>
