@@ -12,9 +12,9 @@
 ![](https://files.catbox.moe/hkpx3q.png)
 kubz⠀𓈒⠀jay⠀𓈒⠀doa
 
- [click me](https://open.spotify.com/artist/4hR6Bm9YYtktXzjmKhb1Cn?si=LGGKYX7FSvuYRsp6fhf3mg)
+they⠀𓈒⠀he
  
-they⠀𓈒⠀he⠀⠀𓏏𓏏⠀[guestbook](https://brakence.atabook.org/)⠀⠀[rentry](https://rentry.co/vol_333)⠀⠀11/16
+ [click me](https://open.spotify.com/artist/4hR6Bm9YYtktXzjmKhb1Cn?si=LGGKYX7FSvuYRsp6fhf3mg)⠀⠀𓏏𓏏⠀[guestbook](https://brakence.atabook.org/)⠀⠀[rentry](https://rentry.co/vol_333)⠀⠀11/16
 ![](https://files.catbox.moe/xcy06t.png)
 
 <div/>
